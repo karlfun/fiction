@@ -1,6 +1,6 @@
-##Fiction project##
+## Fiction project
 
-#Possible NaNoWriMo project for 2022#
+# Possible NaNoWriMo project for 2022
 
 ---
 
