@@ -9,7 +9,7 @@ Possible NaNoWriMo project for 2022.
 Chapters / story:
 
 
-I: rescuing / escaping the fire at LA Central Library, Spring 2029.
+I: rescuing / escaping the fire at the Springfield College Library, Spring 2029.
 
 II: Establish our hero characters: Public School Family
 
