@@ -18,13 +18,13 @@ The stairwell was all concrete and steel, and the flames found no purchase here.
 
 "AURORA!" he yelled, exasperated. 
 
-Goddamit she better be alive. I'll die if she's gone. 
+*Goddamit she better be alive.* Den thought. *I'll die if she's gone.* 
 
 "AURORA!" 
 
 Still nothing. 
 
-He ran to the metal shelving system. No offense to the Mr. Peterson, but this was the ugliest feature in the entire building. The building wasn't exactly an architectural gem - sort of a midcentury-meets-brutalist functional structure. But it was made with quality materials. Limestone exterior. Terrazzo floors. Brass fixtures and wall sconces. And then, a grey-brown metal behemoth just off the middle of the main floor - ten huge metal shelves on a track system. The shelves were 20 feet deep, 8 feet tall, and on a track system so you could only squeeze between two of the shelves at a time. If you were in the D-through-I aisle but you wanted to check the J-through-O row, you had to exit, and turn the huge crank on the shelf to move it slowly over on its track. It saved space in the building and crammed more of this cursed collection into the library. It also happened to be a moderately fireproof storage solution, since the books were stored more denseley here than anywhere else. 
+He ran to the metal shelving system. No offense to the Mr. Peterson, but this was the ugliest feature in the entire building. The building wasn't exactly an architectural gem - sort of a midcentury-meets-brutalist functional structure. But it was made with quality materials. Limestone exterior. Terrazzo floors. Brass fixtures and wall sconces. And then, a grey-brown metal behemoth just off the middle of the main floor - ten huge metal shelves on a track system. The shelves were 20 feet deep, 8 feet tall, and on a track system so you could only squeeze between two of the shelves at a time. If you were in the D-through-I aisle but you wanted to check the J-through-O row, you had to exit, and turn the huge crank on the next shelf to move it slowly over on its track. It saved space in the building and crammed more of this cursed collection into the library. It also happened to be a moderately fireproof storage solution, since the books were stored more denseley here than anywhere else. 
 
 When he got to the shelves, he noticed that all of them were rolled together. Must have been an automatic safety feature, he thought. He raced to the outside of the first row - A-through-C. And there, with her hand on the shelf wheel, holding the row closed, was Aurora, unconscious. 
 
