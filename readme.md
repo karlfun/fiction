@@ -9,13 +9,17 @@ Possible NaNoWriMo project for 2022.
 Chapters / story:
 
 
-I: rescuing / escaping the fire at the Springfield College Library, Spring 2029.
+I & II: Finding Aurora / escaping the fire at the Springfield College Library, Spring 2029.
 
-II: Establish our hero characters: Public School Family
 
-III: Establish our enemies: The enemies of public education and public information
+Establish our hero characters: Public School Family
 
-IV: 
+Establish our enemies: The enemies of public education and public information
+
+Give history and precedent for the way public school collapsed
+
+
+
 
 
 
