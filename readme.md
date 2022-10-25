@@ -18,6 +18,7 @@ Establish our enemies: The enemies of public education and public information
 
 Give history and precedent for the way public school collapsed
 
+Our heroes are trying to get to New York, the last bastion of public education support. Infrastructure is still strong, but it's hard to get into the city. 
 
 
 
