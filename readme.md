@@ -11,6 +11,19 @@ Chapters / story:
 
 I & II: Finding Aurora / escaping the fire at the Springfield College Library, Spring 2029.
 
+III: Establishing ground zero - goal for Aurora & Den to reach. (NYC, PS1)
+
+IV: back to Aurora & Den. Gathering their family and friends, making a plan to escape to NYC. Waterways, maps, boats. 
+
+V: National story and more trouble with the fight. Other public schools involved. Virginia, West Virginia, Kentucky surprising holdouts. 
+
+VI: Aurora & Den travel tribulations. 
+
+VII: West coast fights. Canada helpers.
+
+VIII: 
+
+
 
 Establish our hero characters: Public School Family
 
