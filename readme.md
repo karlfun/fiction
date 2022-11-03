@@ -13,7 +13,7 @@ I & II: Finding Aurora / escaping the fire at the Springfield College Library, S
 
 III: Establishing ground zero - goal for Aurora & Den to reach. (NYC, PS1)
 
-IV: back to Aurora & Den. Gathering their family and friends, making a plan to escape to NYC. Waterways, maps, boats. 
+IV: back to Aurora & Den. Gathering their family and friends, re-capping, and making a plan to escape to NYC. Waterways, maps, boats. 
 
 V: National story and more trouble with the fight. Other public schools involved. Virginia, West Virginia, Kentucky surprising holdouts. 
 
