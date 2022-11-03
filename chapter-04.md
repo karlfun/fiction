@@ -14,9 +14,11 @@ After exchanging a mischievous glance with Aurora, Den offered a short response.
 
 "Probably nothing. Nothing anyone will see for a long time, anyway."
 
-The Proud Front had already claimed credit for the arson of the library. Known for its dramatics, and rumored to have many members in positions of local and regional power, the proto-terrorist group had padlocked school doors, bulldozed bus benches and shelters, and harassed alleged members of the public school supporting groups. And now, they burned a library. It was mostly symbolic, of course, as much of the collection was online and backed up in triplicate. To intentionally burn a public gathering place focused on knowledge was a clear message of anti-intellectualism. 
+The Proud Front had already claimed credit for the arson of the library. Known for its dramatics, and rumored to have many members in positions of local and regional authority, the proto-terrorist group had padlocked school doors, bulldozed bus benches and shelters, and harassed alleged members of the public school supporting groups. And now, they burned a library. It was mostly symbolic, of course, as much of the collection was online and backed up in triplicate. To intentionally burn a public gathering place focused on knowledge was a clear message of anti-intellectualism. No member of the Proud Front had ever been prosecuted by law enforcement, because, according to the media, "they had never been caught." Den and Aurora and the other activists had more sinister suspicions.
 
-Teachers were already in short supply before the terror started, now the school district couldn't even hire administrators. 
+Their heinous acts were working as intended. Teachers were already in short supply before the terror started, now the school district couldn't even hire administrators. Some educators defected to the private schools, where the pay was dramatic and the class sizes were compact. But they drove to school under cover of darkness, parked in the access-gated garages under the schools, and quit showing their faces in the grocery stores. This new system wasn't about education. It was about power. 
+
+
 
 
 
@@ -38,6 +40,18 @@ Teachers were already in short supply before the terror started, now the school 
 
 --------------------------------------
 
+NOTES
+
+Warning: spoilers
+
+
+
+
+
 what the hell were they doing in the library
 were they stealing books, or hard drives
 did they light the fire? 
+
+secretly - not to be revealed to the reader until later - they were finding information on the members of the Proud Front
+
+
