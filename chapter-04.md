@@ -18,7 +18,7 @@ The Proud Front had already claimed credit for the arson of the library. Known f
 
 Their heinous acts were working as intended. Teachers were already in short supply before the terror started, now the school district couldn't even hire administrators. Some educators defected to the private schools, where the pay was dramatic and the class sizes were compact. But they drove to school under cover of darkness, parked in the access-gated garages under the schools, and quit showing their faces in the grocery stores. This new system wasn't about education. It was about power. 
 
-
+"How to Win Friends and Influence People" would surely be a popular read in the dark years to come. 
 
 
 
