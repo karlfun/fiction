@@ -6,6 +6,9 @@ One elementary school principal in Lakewood made a new rule requiring all facult
 
 "We're being indoctrinated into this nonsense policy. It's outrageous!" Thomas Ross, fourth grade teacher, told the press. 
 
+Ross wasn't employed by the Lakewood district for much longer after that. 
+
+The private school curriculum, called *Veritas*, was a 
 
 
 
