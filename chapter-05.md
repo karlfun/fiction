@@ -14,6 +14,10 @@ The private school curriculum, called *Veritas*, was a series of age-based modul
 
 Back in New York, the PS1 curators were beginning to package and market their own curriculum. A mix of free-range parenting, liberal arts, and folk school training, the curriculum was pretty much the nightmare of the anti-ed pushers. But the east coast curators were seeing results. Graduates could read, write, recite Shakespeare or Betty Friedan, balance a budget or do a handstand, and most importantly, start ambitious new projects. These young adults were going on to start their own schools, creative businesses, and artistic new ventures throughout the country. The curators saw that these kids were solving the problems of the past -- using applied science to create new and exciting opportunities for themselves, their peers, and members of their communities. 
 
+Not every kid educated through PS1 ended up an advocate for public schooling. One former student, Morgan Phillips, wrote a memoir about her education experience, claiming her time at PS1 left her "confused and windblown, directionless and unambitious." While she was courted by the marketers of *Veritas*, she charted her own path in philosophy and political science, leading podcasts and panel discussions on the best way for children to grow. 
+
+The fight for education was maturing; changing; becoming strange to its inception, and mutating in unexpected ways. Adapt or die, Darwin says. 
+
 
 
 
