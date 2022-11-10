@@ -15,7 +15,7 @@ III: Establishing ground zero - goal for Aurora & Den to reach. (NYC, PS1)
 
 IV: back to Aurora & Den. Gathering their family and friends, re-capping, and making a plan to escape to NYC. Waterways, maps, boats. 
 
-V: National story and more trouble with the fight. Other public schools involved. Virginia, West Virginia, Kentucky surprising holdouts. 
+V: National story and more trouble with the fight. How PS1 is reacting.
 
 VI: Aurora & Den travel tribulations. 
 
