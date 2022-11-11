@@ -17,11 +17,16 @@ IV: back to Aurora & Den. Gathering their family and friends, re-capping, and ma
 
 V: National story and more trouble with the fight. How PS1 is reacting.
 
-VI: Aurora & Den travel tribulations. 
+VI: Aurora hesitation to travel.
 
-VII: West coast fights. Canada helpers.
+VII: Introduction to the kids.
 
-VIII: 
+VIII: Traveling. 
+
+IX: Traveling some more.
+
+X: The vibe on the east coast.
+
 
 
 
