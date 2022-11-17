@@ -52,6 +52,12 @@ Wrinkles, sure, and hair a little lighter, too, but surely he wasn't old yet. He
 
 Gasps and shouts erupted from the room.
 
+"How did you find out about this? How do you know it's true?" asked a member of the Knoxville advocates.
+
+"I'll spare you the details, but let's just say we have some very advanced software engineers working with us in New York. Most - but not all - of the communication happening at *Veritas* headquarters is encrypted. You'll notice I said not *all*. They've dropped enough careless clues in public channels that we've pieced most of their plan together. 
+
+
+
 
 
 
