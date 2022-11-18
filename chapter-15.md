@@ -58,6 +58,10 @@ Gasps and shouts erupted from the room.
 
 "The basics are that sometime next month - everything has pointed to September - *Veritas* will permanently or indefinitely interrupt the power supply for as many as 100 schools in the region - from Nashville, to Lexington, to Charlotte, to Atlanta. Atlanta is obviously the biggest metro area, and Lexington may have more political targets, but you all in Knoxville are in the dead center of this circle, so you have the best strategic chance to thwart the plan. 
 
+"What we're proposing - and please hear me out first, but then I want to hear from you - is to let them go through with their plan, but 1) catch them in the act with significant public documentation, and 2) bring power back to the schools as fast as possible. It would be a hit to education to lose power, of course, but we're also extremely concerned about the food services and other critical community services that all of these schools provide. We want refrigerators and freezers, and lights and heating and cooling, back online as soon as possible.
+
+"Now, I've shared a lot of shocking information. What else do you want to know? How can my crew and I help you? And what do you want to do?"
+
 
 
 
