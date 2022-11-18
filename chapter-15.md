@@ -46,7 +46,9 @@ Malcolm had aged considerably in the years since college. Terrence could see the
 
 Wrinkles, sure, and hair a little lighter, too, but surely he wasn't old yet. He didn't *feel* old. 
 
-"Folks, I hope to earn your trust with the information I'm about to share. I know that you have been working hard in Knoxville and beyond, and I'm amazed at the innovation you've demonstrated in your efforts. We've intercepted some information about *Veritas* action plans which concerns all of us - but will directly affect you." Malcolm spoke on the video screen in front of the Knoxville contingent. 
+"Folks, I hope to earn your trust with the information I'm about to share. I know that you have been working hard in Knoxville and beyond, and I'm amazed at the innovation you've demonstrated in your efforts." Malcolm spoke on the video screen in front of the Knoxville contingent. He would have loved to travel to Tennessee to see Terrence and meet his friends, but it was much safer connecting digitally these days. It was also tough to deliver such a serious message over video, but he knew he had to try.
+
+"We've intercepted some information about *Veritas* action plans which concerns all of us - but will directly affect you." he continued.
 
 "*Veritas* plans to cut power to 100 schools in Appalachia sometime in the next 30 days."
 
@@ -61,6 +63,18 @@ Gasps and shouts erupted from the room.
 "What we're proposing - and please hear me out first, but then I want to hear from you - is to let them go through with their plan, but 1) catch them in the act with significant public documentation, and 2) bring power back to the schools as fast as possible. It would be a hit to education to lose power, of course, but we're also extremely concerned about the food services and other critical community services that all of these schools provide. We want refrigerators and freezers, and lights and heating and cooling, back online as soon as possible.
 
 "Now, I've shared a lot of shocking information. What else do you want to know? How can my crew and I help you? And what do you want to do?"
+
+Terrence spoke up first. 
+
+"That's pretty wild, Malcolm. Thank you for taking the time to share with us. It is a lot to process, but I appreciate that you've brought us a proposed plan. I am sure we're all going to need time to think on it. I do have one question, though. Do you know any drone pilots?"
+
+"As a matter of fact, I do." Malcolm answered with a smirk. Terrence knew that Malcolm was a drone pilot who had nearly lost his license for some urbex photography attempts in their college days. He had gone clean since then, just taking some jobs here and there for corporate clients, but work had slowed down as the fight for education heated up.
+
+"What about the schools? Have you contacted administration? Teachers? School boards? They need to know about this!" another member of the Knoxville agitators asked. 
+
+"It's tough to reach trustworthy contacts at the schools. As you all know - some school boards and administrators will actually be in on these plans already. So we're starting with you all. If you have friends in the schools who are at the absolute, utmost, top level of trust within your circles - it's OK to bring them in on this. But for now, I would urge caution." Malcolm answered. 
+
+
 
 
 
