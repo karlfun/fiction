@@ -56,6 +56,10 @@ Gasps and shouts erupted from the room.
 
 "I'll spare you the details, but let's just say we have some very advanced software engineers working with us in New York. Most - but not all - of the communication happening at *Veritas* headquarters is encrypted. You'll notice I said not *all*. They've dropped enough careless clues in public channels that we've pieced most of their plan together. 
 
+"The basics are that sometime next month - everything has pointed to September - *Veritas* will permanently or indefinitely interrupt the power supply for as many as 100 schools in the region - from Nashville, to Lexington, to Charlotte, to Atlanta. Atlanta is obviously the biggest metro area, and Lexington may have more political targets, but you all in Knoxville are in the dead center of this circle, so you have the best strategic chance to thwart the plan. 
+
+
+
 
 
 
